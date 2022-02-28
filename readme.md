@@ -1,0 +1,1 @@
+# Amatör Denizci Online Eğitimi & Kısa Mesafe Telsiz (KMT) Online Eğitimi Tamamlayıcı Scripti
